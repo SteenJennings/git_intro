@@ -1,2 +1,1 @@
 Steinar Jennings
-24
