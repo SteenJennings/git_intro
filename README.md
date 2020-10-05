@@ -1,1 +1,2 @@
 Steinar Jennings
+jenninst@oregonstate.edu
